@@ -1,1 +1,1 @@
-# Architectures-Typographiques
+# Architectures Typographiques
